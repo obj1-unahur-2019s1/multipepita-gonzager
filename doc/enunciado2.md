@@ -1,4 +1,4 @@
-# Etapa 2 - Pepita crece
+# Etapa 2 - Pepita crece y crece.
 
 ## Más cosas que se le pueden preguntar
 
